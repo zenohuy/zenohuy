@@ -1,4 +1,4 @@
-# Hi there! I'm Duong Quang Huy (@zenohuy) 🤖
+# Hi there! I'm Duong Quang Huy (@huydq06) 🤖
 
 ### 🌱 IT Student @ UTC | Just learning to code!
 
